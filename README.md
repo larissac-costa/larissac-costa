@@ -1,6 +1,6 @@
 # Olá! Sou Larissa Cristina 👋
 
-📚 Estudante de Medicina - 5º período
+📚 Estudante de Medicina - 6º período
 
 🔭 Interessada em Neurologia, Neurocirurgia e Anestesia
 
